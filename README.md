@@ -1,4 +1,4 @@
-## Hii there! I'm caduHD4 🖐️
+## Fala meus manos! Caduzim aqui 🖐️
 
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/caduhd4/)
 [![Twitch](https://img.shields.io/badge/Twitch-9146FF?style=for-the-badge&logo=twitch&logoColor=white)](https://www.twitch.tv/caduhd4_)
